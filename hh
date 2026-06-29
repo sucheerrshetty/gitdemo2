@@ -1,3 +1,3 @@
 Namaskara
 Bengaluru
-hegeeddira, uta aytha. 
+Namaskara
