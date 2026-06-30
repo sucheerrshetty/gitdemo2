@@ -3,3 +3,4 @@ Bengaluru
 Namaskara
 bengaluru
 Udupi
+Karkala
